@@ -1,2 +1,2 @@
 # dreeuz
-Contributing platform foo planting trees
+Contributing platform for planting trees whoever lives in abroad
